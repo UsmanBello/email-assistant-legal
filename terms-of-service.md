@@ -194,7 +194,7 @@ By continuing to access or use our Service after those revisions become effectiv
 
 If you have any questions about these Terms, please contact us at:
 
-Email: [terms@emailassistant.com](mailto:terms@emailassistant.com)
+Email: [notfortrolls.global@gmail.com](mailto:notfortrolls.global@gmail.com)
 
 ---
 

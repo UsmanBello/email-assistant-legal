@@ -23,7 +23,7 @@ Email Assistant is not intended for children under 16 years of age. We do not kn
 
 If you have any questions about this privacy policy or our privacy practices, please contact us at:
 
-Email: [privacy@emailassistant.com](mailto:privacy@emailassistant.com)
+Email: [notfortrolls.global@gmail.com](mailto:notfortrolls.global@gmail.com)
 
 ## 2. THE DATA WE COLLECT ABOUT YOU
 
@@ -180,7 +180,7 @@ Under certain circumstances, you have rights under data protection laws in relat
 - **Request transfer** of your personal data
 - **Right to withdraw consent** where we rely on consent to process your personal data
 
-You can exercise these rights by contacting us at [privacy@emailassistant.com](mailto:privacy@emailassistant.com). There is no fee to access your personal data or to exercise any of the other rights, but we may charge a reasonable fee if your request is clearly unfounded, repetitive, or excessive.
+You can exercise these rights by contacting us at [notfortrolls.global@gmail.com](mailto:notfortrolls.global@gmail.com). There is no fee to access your personal data or to exercise any of the other rights, but we may charge a reasonable fee if your request is clearly unfounded, repetitive, or excessive.
 
 ## 11. CHANGES TO THIS PRIVACY POLICY
 
@@ -188,7 +188,7 @@ We may update this privacy policy from time to time. When we make material chang
 
 ## 12. CONTACT US
 
-If you have any questions about this privacy policy, including any requests to exercise your legal rights, please contact us at [privacy@emailassistant.com](mailto:privacy@emailassistant.com).
+If you have any questions about this privacy policy, including any requests to exercise your legal rights, please contact us at [ussybells@gmail.com](mailto:ussybells@gmail.com).
 
 ---
 

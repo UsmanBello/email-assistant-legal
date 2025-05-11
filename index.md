@@ -16,8 +16,8 @@ Welcome to the legal documentation for Email Assistant. Please review these docu
 
 If you have any questions about these documents, please contact us at:
 
-- **Privacy Questions**: [privacy@emailassistant.com](mailto:privacy@emailassistant.com)
-- **Terms Questions**: [terms@emailassistant.com](mailto:terms@emailassistant.com)
-- **General Inquiries**: [contact@emailassistant.com](mailto:contact@emailassistant.com)
+- **Privacy Questions**: [notfortrolls.global@gmail.com](mailto:notfortrolls.global@gmail.com)
+- **Terms Questions**: [notfortrolls.global@gmail.com](mailto:notfortrolls.global@gmail.com)
+- **General Inquiries**: [notfortrolls.global@gmail.com](mailto:notfortrolls.global@gmail.com)
 
 Last Updated: May 11, 2025
